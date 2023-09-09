@@ -1,2 +1,2 @@
 # NyingmapaMahaYogaMexico
-Web Page of Lama Yeshi Rinpoche Faljor
+Web Page of Lama Yeshi Rinpoche Paljor
